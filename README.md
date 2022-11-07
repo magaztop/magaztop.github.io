@@ -1,0 +1,1 @@
+# magaztop.github.io
